@@ -1,0 +1,2 @@
+# tech-nscumg
+srtyhn
